@@ -1,2 +1,3 @@
 # Krunker-Meme-Thing
-bluzed's krunker meme thing
+i improve bluzed's krunker meme thing 👍
+
